@@ -1,0 +1,2 @@
+# BANG
+Onde encontras tudo 💰
